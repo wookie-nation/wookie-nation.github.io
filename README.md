@@ -1,2 +1,8 @@
 # wookie-nation.github.io
-Wookie-Nation Information Website
+Welcome to the Wookie-Nation Information Website. This website is currently being developed but stay tuned, more to come!
+
+Power your Inner Wookie!
+
+
+
+
